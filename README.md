@@ -8,3 +8,6 @@
 radiografialegalowner/radiografialegalowner is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+ last night i was dont in power shell or websiet for that they asked for me to verify,i stll have the proced photos.,And all today the derler of MICROSOFT THE JUST TOOK OVER MY COMPUTER AND NOW I SEE THE RESULTED IS DIFFRENCE
+ 
+ 
